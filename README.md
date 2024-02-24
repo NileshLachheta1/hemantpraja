@@ -14,7 +14,7 @@
 
 - 👨‍💻 All of my projects are available at **[My Portfolio](https://github.com/hemantpraja?tab=repositories)**
 
-- 📫 How to reach me **[My Email](hemantpraja88@gmail.com)**
+- 📫 How to reach me **hemantpraja88@gmail.com**
 
 
 
